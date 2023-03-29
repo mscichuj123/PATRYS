@@ -1,0 +1,2 @@
+# PATRYS
+moja gra
